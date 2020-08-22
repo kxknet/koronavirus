@@ -1,2 +1,1 @@
-# koronavirus
-Все новости про коронавирус - узнай первым
+Video online https://github.com/kxknet/watch-video
